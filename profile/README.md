@@ -1,4 +1,4 @@
-## Hi there 👋
+## Guten Morgen, Guten Mittag oder Guten Abend!
 
 <!--
 
